@@ -7,6 +7,9 @@ I'm currently looking for a long-term collaboration partner to expand my work, e
 
 I'm always open to discussing potential partnerships and collaboration opportunities.
 
-**Let's connect on Telegram:** [@pengyou1109](https://t.me/pengyou1109)
+### Contact Me
+
+- **Telegram:** [@pengyou1109](https://t.me/pengyou1109)
+- **WhatsApp:** [+7 981 879-99-68](https://wa.me/79818799968)
 
 Thank you!
